@@ -4,6 +4,6 @@
 - 📍  I live in Bari, Italy
 - ⚡ I love playing videogames, writing & reading
 
-Here is my Linkedin 👉🏻 [Linkedin](https://www.linkedin.com/in/emanuele-citarella-5251a7164/).
+Here is my [Linkedin](https://www.linkedin.com/in/emanuele-citarella-5251a7164/) profile. Reach me out!
 
 
