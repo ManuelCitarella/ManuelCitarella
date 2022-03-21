@@ -1,6 +1,6 @@
 ### Hi there 👋 I'm Manuel!
 
-- 💻 I was a CS student but I'm always learning
+- 💻 I have a degree in CS but I'm always learning
 - 📍  I live in Bari, Italy
 - ⚡ I love playing videogames, writing & reading
 
